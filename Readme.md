@@ -1,1 +1,1 @@
-SmolHook (Cathook VERY debloated)
+SmolHook (VERY Debloated Software)
